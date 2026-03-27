@@ -1,3 +1,9 @@
+Accountability partners
+Ugochukwu Joy Osinachi 
+Muhammad Haruna Muhammad
+Goodluck Atamunosebiekpomame Tamunoiteme
+
+
 Risk Assessment for a CYBER CAFÉ 
 
 CRITICAL ASSETS 
